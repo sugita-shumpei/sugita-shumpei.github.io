@@ -1,1 +1,1 @@
-# shumpei-sugita.github.io
+# sugita-shumpei.github.io
